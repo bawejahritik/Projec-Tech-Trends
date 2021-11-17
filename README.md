@@ -1,2 +1,2 @@
-# Projec Tech Trends
+# Project Tech Trends
  
